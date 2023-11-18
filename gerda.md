@@ -1,0 +1,1887 @@
+# Gerda
+
+## 2022-12-05
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2022-12-06
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2022-12-07
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2022-12-08
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2022-12-09
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2022-12-10
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2022-12-11
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2022-12-14
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2022-12-18
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2022-12-21
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2022-12-25
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2022-12-28
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-01-02
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-01-03
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-01-04
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-01-05
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-01-06
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-01-07
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-01-29
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-01-30
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-01-31
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-02-01
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-02-02
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-02-03
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-02-04
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-02-05
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-02-08
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-02-12
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2023-02-15
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-02-16
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-02-20
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-02-22
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2023-02-24
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-02-28
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-03-04
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-03-26
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-04-02
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-04-09
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-04-10
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-04-11
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-04-12
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-04-13
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-04-14
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-04-15
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-04-16
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-04-23
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-05-14
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-05-21
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2023-05-22
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-05-30
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2023-06-07
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-06-08
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-06-09
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-06-10
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-06-13
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2023-06-18
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2023-06-19
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-06-25
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-07-17
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-07-18
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-07-19
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-07-20
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-07-21
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-07-23
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2023-07-29
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2023-07-30
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-08-05
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-08-06
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2023-08-12
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2023-08-14
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-08-15
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-08-16
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-08-17
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-08-18
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-09-10
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-09-11
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-09-12
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-09-13
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-09-14
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-09-15
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-09-16
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-09-18
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2023-09-26
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2023-10-03
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2023-10-04
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-10-09
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+
+## 2023-10-15
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-10-16
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-10-17
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-10-18
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-10-19
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-10-20
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
+
+## 2023-10-21
+* Gerda №1
+* Gerda №2
+* Gerda №3
+* Gerda №4
+* Gerda №5
+* Gerda №6
+* Gerda №7
+* Gerda №8
+* Gerda №9
+* Gerda №10
+* Gerda №11
+* Gerda №12
+* Gerda №13
+* Gerda №14
+* Gerda №15
+* Gerda №16
+* Gerda №17
+* Gerda №18
+* Gerda №19
+* Gerda №20
